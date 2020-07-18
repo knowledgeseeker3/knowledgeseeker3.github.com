@@ -1,2 +1,2 @@
-# knowledgeseeker3.github.com
+# knowledgeseeker3.github.io
 Hi Mavis
